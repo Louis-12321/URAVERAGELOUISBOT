@@ -1,2 +1,1 @@
-# URAVERAGELOUISBOT
-https://discord.gg/qVXT42QNAD
+
